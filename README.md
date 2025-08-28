@@ -2,7 +2,11 @@
 
 **Engineering Manager** | **Technical Leader** | **Delivery Catalyst**
 
+---
+
 📱+353 87 602 5625 | 📧 james.williams@liquid-armour.com | 🌐 linkedin.com/in/williajd
+
+---
 
 *“Software is a team sport — my role is to create the conditions for teams to deliver, learn, and thrive.”*
 

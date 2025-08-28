@@ -1,6 +1,6 @@
 **James Williams**
 
-Engineering Manager | Technical Leader | Delivery Catalyst
+**Engineering Manager** | **Technical Leader** | **Delivery Catalyst**
 
 📱+353 87 602 5625 | 📧 james.williams@liquid-armour.com | 🌐 linkedin.com/in/williajd
 
